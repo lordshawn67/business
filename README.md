@@ -24,8 +24,8 @@ People started hoarding during the start of the pandemic in March 2020 along wit
 Retailers and suppliers are unsure when supply will return as COVID has disrupted global supply chains for ammo components and raw materials. Plus social distancing has slowed down packing operations.
 One thing is for sure…if ammo is in stock it’s likely a higher price than before.
 Best Places to Buy Ammo Online
-1. Loyal Ammunition Shop
-Loyal Ammunition Shop is the online center for the best of Ammunition and hunting accessories We started Loyal Ammunition Shop with a single purpose, to provide the finest Ammunition and hunting accessories
+1. <a href="https://loyalammunitionshop.com">Loyal Ammunition Shop</a>
+<a href="https://loyalammunitionshop.com">Loyal Ammunition Shop</a> is the online center for the best of Ammunition and hunting accessories We started Loyal Ammunition Shop with a single purpose, to provide the finest Ammunition and hunting accessories
 Loyal Ammunition Shop is an online ammunition store that connects you directly to reloading supplies and firearms manufacturers around the globe [1]. They offer a wide range of products from top brands, including ammunition, firearms, reloading supplies, and more. You can contact them at their address 3902 E Pacific Coast Hwy [2][3], Torrance, CA 90505, United States or by email at contact@loyalammunitionshop.com. Their phone number is (209) 736-5364.
 Loyal Ammunition Shop is an online ammunition store located at 3902 E Pacific Coast Hwy [1][2], Torrance, CA 90505, United States. They offer a wide selection of ammunition, reloading supplies, and firearms. The store can be contacted via email at contact@loyalammunitionshop.com or by phone at (209) 736-5364.
 1. .270 Winchester – Loyal Ammunition Shop
